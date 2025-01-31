@@ -1,4 +1,4 @@
-# BTP4RK GÜNCEL GİRİŞ ADRESİ
+# [BTP4RK GÜNCEL GİRİŞ ADRESİ](https://t2m.io/btprk)
 
 
-![Açıklama Metni](z1.png)
+![Giriş Adresi](z1.png)
